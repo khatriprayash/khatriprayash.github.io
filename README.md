@@ -1,1 +1,0 @@
- # khatripyarash.github.io
